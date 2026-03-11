@@ -3,3 +3,5 @@
 Учусь в Нетологии по профессии "JAVA разработчик"
 
 В Нетологии я научился много новому.
+
+![i](https://github.com/user-attachments/assets/997a9f3e-b99a-4ee6-b57c-b727d1460c1f)
