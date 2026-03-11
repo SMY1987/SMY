@@ -4,4 +4,4 @@
 
 В Нетологии я научился много новому.
 
-![i](https://github.com/user-attachments/assets/997a9f3e-b99a-4ee6-b57c-b727d1460c1f)
+![alt text](f7782f6c1133cd2e4a62c861e121db69.jpg)
